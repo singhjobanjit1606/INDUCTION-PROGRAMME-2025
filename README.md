@@ -23,18 +23,19 @@ experiences again.
 Day 5 began once again with the spiritual and motivating vibes brought by **Dr. Harpreet Kaur**, setting a positive tone for the day. Our first session was led by **Dr. Parminder Singh**, Dean of Student Welfare, who introduced us to the various college resources, anti-ragging policies, and scholarship opportunities available to students. This was followed by an energetic and interactive lecture on *Fitness for Engineers* by **Mr. Manpreet Singh**, the sarpanch of Manakwal village and a professional gym trainer and coach. Later, the **NCC cadets** gave a brief introduction to their unit and activities. One of the highlights of the day was an inspiring expert lecture by **Brigadier P.S. Cheema**, whose words and presence left a lasting impact. After lunch, we proceeded for **ID card formation**, which turned out to be a smooth and light-hearted experience, filled with laughter and good moments with friends — a great way to wrap up the day.
 
 ### 🗓️ Day 6 — 7 August 2025
-
 Day 6 was another great day!  
 I started my college at 9:30 AM with a **peer-to-peer lecture by our seniors on C++**, which turned out to be quite helpful.  
 I also made some new friends, and we had a lot of fun together. After that, we had an **English lecture** for Mechanical Engineers.  
-
 After the lecture, we had a break till 1:30 PM. The break was quite enjoyable — I explored the college again, discovered new places, and even visited the boys’ hostel and girls’ hostel areas.  
-
 Post-break, we had a class in the **Auditorium** with **Dr. Lakhvir Singh Khanna**, the in-charge of CML (Centre of Multi-Faceted Learning). It was a highly interactive session filled with excitement and clapping.  
 I even had a personal interaction with him, which was very interesting. He told us about the **CML club**, which sounds very appealing. Now I’m considering joining either the Cosmic Club or the CML club.  
-
 Most importantly, he introduced us to the **NPTEL** and **Swayam** portals, where we can enrol in free IIT lectures and even earn credits towards a **B.Tech Honours** degree. That was quite fascinating.  
-
 Later, we had an **NSS** session with **Dr. Jasvir Singh**. It was interactive, but not really my area of interest.  
-
 I ended my college day at 3:30 PM feeling satisfied and energized.
+
+### 🗓️ Day 7 — 8 August 2025
+
+Today was quite an average day overall. I got my schedule late at night around 12 o’clock midnight. Classes started at 11:00 AM with **Engineering Drawing**, which was quite interesting and useful for me.  
+After that, we had a break, spent having a lot of fun with friends and enjoying the vibes at the canteen.  
+Post-break, we had a **Mathematics** lecture where we solved one or two questions. It was more of an introduction for 1st-year B.Tech students, common across all branches, and included a brief overview of the books we would be using.  
+Finally, we had an **Economics** lecture in the seminar hall, wrapping up the day by 3:00 PM.
